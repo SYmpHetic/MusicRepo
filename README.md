@@ -58,4 +58,4 @@ I am sorry that no score or midi will be provided, this repo is only for store p
 
 Please contact me for infringement
 
-shiyh0414@gmail.com
+hfsymphony@gmail.com
