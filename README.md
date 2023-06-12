@@ -51,7 +51,7 @@ Finished on Oct. 20th, 2021
 
 Software: Fl studio
 
-Finished in Apr. 9th, 2022
+Finished on Apr. 9th, 2022
 
 ## Notes
 I am sorry that no score or midi will be provided, this repo is only for store purposes
