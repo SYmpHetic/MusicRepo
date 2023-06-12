@@ -8,21 +8,21 @@ Music rearranged and transcript. Orchestra, Concert band, String Quartet, ...
 
 Software: Fl studio
 
-Finished in Apr. 22nd, 2017
+Finished on Apr. 22nd, 2017
 
 #### 2.Eternal Myth
 Arranged for high school marching band, combained 4 impressed pieces that I performed, so no original pieces.
 
 Software: Overture
 
-Finished in May 25th, 2018
+Finished on May 25th, 2018
 
 #### 3.听见下雨的声音
 [Original Piece](https://www.youtube.com/watch?v=zqKoXPHhmsM)
 
 Software: Fl studio
 
-Finished in Jan. 23rd, 2021
+Finished on Jan. 23rd, 2021
 
 ### Transcript
 #### 1.Cloture
@@ -30,21 +30,21 @@ Finished in Jan. 23rd, 2021
 
 Software: Fl studio
 
-Finished in Dec. 16th, 2019
+Finished on Dec. 16th, 2019
 
 #### 2.Another Heaven
 [Original Piece](https://www.youtube.com/watch?v=iFQZhV7eJwU)
 
 Software: Fl studio
 
-Finished in Apr. 24th, 2020
+Finished on Apr. 24th, 2020
 
 #### 3.花水木の咲く頃 - Strings Quartet Edition
 [Original Piece](http://bd.kuwo.cn/play_detail/2515717)
 
 Software: Fl studio
 
-Finished in Oct. 20th, 2021
+Finished on Oct. 20th, 2021
 
 #### 4.雪花
 [Original Piece](https://www.bilibili.com/video/BV1La41187e5)
