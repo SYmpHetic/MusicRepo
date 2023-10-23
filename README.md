@@ -24,6 +24,18 @@ Software: Fl studio
 
 Finished on Jan. 23rd, 2021
 
+#### 4.Think of me
+Arranged for my girlfriend, it's a flute solo piece, and I also uploaded the instrumental version.
+Many thanks for her fantastic playing.
+
+[Original Piece](https://www.youtube.com/watch?v=XfTgCPUJwRk)
+
+Software: Fl studio
+
+Finished on Jul. 28th, 2023
+
+Recorded on Aug. 10th, 2023
+
 ### Transcript
 #### 1.Cloture
 [Original Piece](https://www.youtube.com/watch?v=CDWoVD0r3d0)
