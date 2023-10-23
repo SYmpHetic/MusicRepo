@@ -1,8 +1,7 @@
 # SYmpHony's MusicRepo
 Music rearranged and transcript. Orchestra, Concert band, String Quartet, ...
 
-## Detail
-### Rearrange
+## Rearrange
 #### 1.After All ～綴る想い～
 [Original Piece](https://www.youtube.com/watch?v=YheTmD-NRn0)
 
@@ -36,7 +35,7 @@ Finished on Jul. 28th, 2023
 
 Recorded on Aug. 10th, 2023
 
-### Transcript
+## Transcript
 #### 1.Cloture
 [Original Piece](https://www.youtube.com/watch?v=CDWoVD0r3d0)
 
