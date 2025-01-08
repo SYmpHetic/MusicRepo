@@ -35,6 +35,18 @@ Finished on Jul. 28th, 2023
 
 Recorded on Aug. 10th, 2023
 
+#### 5.Final Fantasy VII Heroine Themes
+Arranged after playing the FF7 remake, also thanks for the Tifa's Theme in the sleepless night.
+
+Software: Fl studio
+
+[Original Piece: Tifa's Theme](https://www.youtube.com/watch?v=seewVC9uwr4)
+[Original Piece: Aerith's Theme](https://www.youtube.com/watch?v=dVq-IlSe6CA)
+
+Finished on May 27th, 2024
+
+Recorded on Jul. 14th, 2024
+
 ## Transcript
 #### 1.Cloture
 [Original Piece](https://www.youtube.com/watch?v=CDWoVD0r3d0)
