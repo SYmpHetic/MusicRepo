@@ -47,6 +47,18 @@ Finished on May 27th, 2024
 
 Recorded on Jul. 14th, 2024
 
+#### 5.Haru hana
+Also arranged for my girlfriend, this time I tried to add piccolo as embellishment，so it has flute and piccolo as duet in the end, fortunately it goes well.
+(though it takes me a long time to finish it. XD
+
+Software: Fl studio
+
+Finished on Jul. 13rd，2025
+
+Recording...
+
+[Original piece](https://www.youtube.com/watch?v=pJv9u2Ug6v0)
+
 ## Transcript
 #### 1.Cloture
 [Original Piece](https://www.youtube.com/watch?v=CDWoVD0r3d0)
